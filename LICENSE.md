@@ -1,4 +1,4 @@
-
+custom Scripts for one tap is the best one tap Script, featuring auto-upgrade and auto-farm. Safe and powerful for all your needs.
 
 
 
